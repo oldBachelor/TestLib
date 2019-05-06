@@ -1,1 +1,0 @@
-Hellow World£¡£¡£¡£¡
